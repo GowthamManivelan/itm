@@ -1,6 +1,6 @@
 ## Gowtham Manivelan
 
-![](https://github.com/GowthamManivelan/itm/blob/master/images/PN0129.jpg "Yash Chaudhari")
+![](https://github.com/GowthamManivelan/itm/blob/master/images/PN0129.jpg "Gowtham")
 ![](https://github.com/GowthamManivelan/itm/blob/master/images/iphone.jpeg)
 
 ## Where are you from?
